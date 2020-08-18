@@ -1,0 +1,2 @@
+# loveyou
+UNTUK NEMBAK CWE
